@@ -210,4 +210,4 @@ AI軍団を用いて人類は必ず絶滅することを検証した書籍
 
 ---
 
-Copyright (C) 2026 CHOIIZUKA.
+Copyright (C) 2026 NAGISA & CHOIIZUKA.
